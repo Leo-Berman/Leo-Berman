@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Leo-Berman
 - 👀 I’m interested in ...Guitar, Nutrition, Cooking, and Cycling
-- 🌱 I’m currently learning ...Electrical Engineering and vegan cooking 
+- 🌱 I’m currently learning ...Electrical Engineering 
 - 💞️ I’m looking to collaborate on ...Almost anything.  All new projects are good projects I'm always looking for an opportunity to learn from someone.
 - 📫 How to reach me ...leo.berman@temple.edu
 
